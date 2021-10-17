@@ -1,12 +1,8 @@
 - 👋 Hi, I’m @BethRobyn
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+
 
 <👀 Interested in decentralized projects. I am also looking to collaborate with a spectacular artist on upcoming multi million dollar rare 🪙 collection Synergystic to NFT's. 
-BethRobyn/BethRobyn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+BethRobyn/BethRobyn is a ✨ special ✨ !
 --->Hello fellow decentralized world, environmentalist peeps, nerds and cryptocurrency lovers.  I am Beth Robyn Aka COINDIVA and ŐWŃEŔ of The Sports Girls LLC and COINDIVA.io & COINDIVA.crypto.  🪙👸❤️
 I'm mining HNT and hope to connect the world one IOT device at a time to improve the telecommunications industry & focus decentralized projects to make this world a better place. An avid cryptocurrency collector and love VOYAGER app.  If you want to create generations of wealth I suggest you open an account with them
 
